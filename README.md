@@ -1,0 +1,1 @@
+# deney-6--sistem-lab
